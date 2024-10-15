@@ -1,1 +1,1 @@
-# smartbell-firmware
+# smartbell-privacy policy
